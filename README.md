@@ -43,4 +43,4 @@ Any changes will be reflected on this page.
 If you have any questions or suggestions about this Privacy Policy,
 please contact us at:
 
-📧 support@guesswhoapp.com
+📧 guesswhogameservices@gmail.com
